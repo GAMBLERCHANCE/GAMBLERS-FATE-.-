@@ -15,7 +15,7 @@
 ; ships I like and favourite? 
 
 
-' probably -[!👑]Doublefedora -Frozendebt -Paycheck -Pizzaburger -Toughluck -[ONESIDED!] Ichance
+' probably -[!👑FAVOURITE]Doublefedora -Frozendebt -Paycheck -Pizzaburger -Toughluck -[ONESIDED!] Ichance
 
 `🎳 \\ HE / THEY : 
 
