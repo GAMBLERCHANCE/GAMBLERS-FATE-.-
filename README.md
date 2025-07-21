@@ -25,6 +25,4 @@
 
 . . 🐇
 
- ? - 🪙 $$$ / " This was made for ponytown ! ! 🃏
-
-![image](https://cdn.discordapp.com/attachments/1124817238092951713/1396824316070334544/Untitled665_20250721125609.png?ex=687f7d84&is=687e2c04&hm=6aa32a116404ec86db08eed65584fdb7c9fb694cdcaecabfddfa04cf4dd4753f&)
+ ? - 🪙 $$$ / " This was made for ponytown ! ! �
